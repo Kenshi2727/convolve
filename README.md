@@ -1,2 +1,2 @@
-Mathur Gendu
-diya ka banda
+ashu kumaoni chodu
+rishi madarjaat
